@@ -1,26 +1,26 @@
 ---
-date: 2019-08-13T22:40:32Z
-title: Ne Te Quaesiveris Extra
+date: 2021-07-01T22:40:32Z
+title: 'July 2021 Astrology '
 author: Ralph Waldo Emerson
-hero_image: "/content/images/pawel-czerwinski-8uZPynIu-rQ-unsplash.jpg"
+hero_image: "/content/images/sunriseearthblog.png"
 
 ---
-I read the other day some verses written by an eminent painter which were original and not conventional. The soul always hears an admonition in such lines, let the subject be what it may. The sentiment they instill is of more value than any thought they may contain. To believe your own thought, to believe that what is true for you in your private heart is true for all men, — that is genius.
+**Week of Monday June 28- Sunday July 4**  
+**Sun & Moon Reading Sun in Cancer 7*-13* Moon moves from Aquarius to Taurus**  
+Now that you have made your plan(s) you are feeling out the right first step. Even if you have written it down, make sure to spend some time meditating/praying on, feeling/sensing out your decision and the first step to take, spiritual guidance may come through at this time. The rest of the week is all about actively manifesting these first moves to elevate your potential now that you have made significant changes in your personal beliefs about yourself/life/ and where to move forward. The Moon moves into Aries late evening on Wednesday (around 9:15pm EST) which may create a burst of creative energy, keeping you up late. Moon in Taurus over the weekend should make for a well deserved, relaxing, and enjoyable holiday weekend.**  
+  
+Week of Monday July 5 – Sunday July 11**  
+**Sun in Cancer 13*-19* Moon moves from Taurus to Leo  
+**Once we have crawled out of our long weekend coma with the Moon in Taurus, get ready for the mind to switch into high gear. We will be feeling out all the future potentials now that Mercury is out of the shadow of it’s retrograde period. Last month we took our time reviewing our perspectives on day to day life and how to move forward in the future with new understandings and beliefs. This month, particularly this week, is all about gearing up for those changes, perhaps seeing some new ones we had not considered, and committing to them by the end of the week with the New Moon in Cancer at 18* (9:17pm EST) . We are being actively called upon by God/Source/Spirit to move forward in creating a new emotional security foundation for our future growth. After Friday it will be easier to actively pursue these plans for the future. Until then, look back at previous plans and desires and see what still resonates, and how you may be looking at the project differently now…perhaps more hopeful and less critical?
 
-Speak your latent conviction, and it shall be the universal sense; for the inmost in due time becomes the outmost,—- and our first thought is rendered back to us by the trumpets of the Last Judgment. Familiar as the voice of the mind is to each, the highest merit we ascribe to Moses, Plato, and Milton is, that they set at naught books and traditions, and spoke not what men but what they thought. A man should learn to detect and watch that gleam of light which flashes across his mind from within, more than the lustre of the firmament of bards and sages.
+**Week of Monday July 12-Sunday July 18  
+Sun in Cancer 20*-26* Moon moves from Leo to Scorpio  
+**Get ready for a passion fueled week. The fire is being lit in so many ways, driving you towards your heart’s true desires. The Sun entering the last decan of Cancer has us seeking how we can use this passion to establish our new emotional security in the outer world and lead with our new integrity. The Moon is bolstering this actively, connecting with both Venus and Mars in Leo on Monday, opening us up to even more new goals and desires. Tuesday & Wednesday will be more about the tangible needs to get to where you’re going. Be flexible on these details Thursday/Friday and make sure you are looking at all the angles. With the Sun opposite Pluto this weekend, you may realize you need to let go of a limited belief or old control structure to help you move forward.
 
-# “A man should learn to detect and watch that gleam of light which flashes across his mind from within…”
+**Week of Monday July 19- Sunday July 25  
+Sun in Cancer 27* – Leo 3* Moon moves from Scorpio to Pisces  
+**As we reach the end of this year’s transit in Cancer we are seeking to achieve mastery over our new beliefs and to start seeing the outer effects of decisions we have made for our new emotional security. The Moon in Scorpio and Sagittarius during these last few degrees is helping us hold space for the new directions to come. The Sun moves into Leo on Thursday and opens with a Full Moon at 1*, essentially checking in on how we are doing- is that new emotional security based on a new love and sense of belonging in yourself? You will be solidly answering these questions internally by the end of the week, it may mean there are still some old mental habits that need to go.
 
-Yet he dismisses without notice his thought, because it is his. In every work of genius we recognize our own rejected thoughts: they come back to us with a certain alienated majesty. Great works of art have no more affecting lesson for us than this. They teach us to abide by our spontaneous impression with good-humored inflexibility then most when the whole cry of voices is on the other side. Else, to-morrow a stranger will say with masterly good sense precisely what we have thought and felt all the time, and we shall be forced to take with shame our own opinion from another.
-
-![](/content/images/anomaly-oRskqiH7FNc-unsplash.jpg)
-
-There is a time in every man’s education when he arrives at the conviction that envy is ignorance; that imitation is suicide; that he must take himself for better, for worse, as his portion; that though the wide universe is full of good, no kernel of nourishing corn can come to him but through his toil bestowed on that plot of ground which is given to him to till. The power which resides in him is new in nature, and none but he knows what that is which he can do, nor does he know until he has tried.
-
-Not for nothing one face, one character, one fact, makes much impression on him, and another none. This sculpture in the memory is not without preestablished harmony. The eye was placed where one ray should fall, that it might testify of that particular ray. We but half express ourselves, and are ashamed of that divine idea which each of us represents.
-
-# “There is a time in every man’s education when he arrives at the conviction that envy is ignorance; that imitation is suicide; that he must take himself for better, for worse…”
-
-It may be safely trusted as proportionate and of good issues, so it be faithfully imparted, but God will not have his work made manifest by cowards. A man is relieved and gay when he has put his heart into his work and done his best; but what he has said or done otherwise, shall give him no peace. It is a deliverance which does not deliver. In the attempt his genius deserts him; no muse befriends; no invention, no hope.
-
-Trust thyself: every heart vibrates to that iron string. Accept the place the divine providence has found for you, the society of your contemporaries, the connection of events. Great men have always done so, and confided themselves childlike to the genius of their age, betraying their perception that the absolutely trustworthy was seated at their heart, working through their hands, predominating in all their being. And we are now men, and must accept in the highest mind the same transcendent destiny; and not minors and invalids in a protected corner, not cowards fleeing before a revolution, but guides, redeemers, and benefactors, obeying the Almighty effort, and advancing on Chaos and the Dark.
+**Week of Monday July 26- Sunday August 1  
+Sun in Leo 4*- 10* Moon moves from Pisces to Taurus  
+**Every year the Sun in Leo asks us to truly check in with our hearts desires, and what we may or may not be doing to support them. The first decan is all about our internal world, here the Sun is actively seeking where the heart belongs so that it can manifest that desired outcome. Monday and Tuesday you are feeling out the path you belong on, roadblocks could arise if you are not being true to yourself. The Moon moves into Aries early Wednesday (6:00am EST) morning urging you to rise and shine and take action towards your goals. The Moon in Taurus over the weekend is a great time to get any tangible projects going.
