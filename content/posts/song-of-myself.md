@@ -1,7 +1,7 @@
 ---
 date: 2021-11-01T22:44:38Z
 title: 'November 2021 Astrology '
-author: Ralph Waldo Emerson
+author: LunarLiz
 hero_image: "/content/images/untitled-design-1.png"
 
 ---
