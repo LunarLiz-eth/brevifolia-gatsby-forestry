@@ -1,7 +1,7 @@
 ---
 date: 2021-07-01T22:40:32Z
 title: 'July 2021 Astrology '
-author: Ralph Waldo Emerson
+author: LunarLiz
 hero_image: "/content/images/sunriseearthblog.png"
 
 ---
