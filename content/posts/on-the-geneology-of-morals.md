@@ -2,7 +2,7 @@
 title: 'October 2021 Astrology '
 date: 2021-10-01T22:37:31Z
 hero_image: "/content/images/octoberblog.png"
-author: Friedrich Nietzsche
+author: LunarLiz
 
 ---
 After a couple of month’s off I am back with a bigger and better look at the Astrology and themes for the month!
